@@ -17,8 +17,15 @@ Em vez de brigar vamos ver se vocês tem os mesmos problemas que o resto do mund
 - Não fez café da manhã
 - Não colocou as louças na máquina
 - Roncou demais
-- Dormiu pelado
+- Dormiu bêbado
+- Não lembrou do meu aniversário
 
+# Os casais estão elogiando:
+
+- Me chupou enquanto assistia um breaking bad
+- Me trouxe cerveja enquanto assistia o jogo
+- Fez uns tiragostos após o boquete
+- Lavou meu carro
 
 ```
 
