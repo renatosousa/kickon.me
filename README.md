@@ -13,7 +13,7 @@ Em vez de brigar vamos ver se vocês tem os mesmos problemas que o resto do mund
 
 # Os casais andam brigando por:
 
-- Toalha molhada na cama **#toalhanacama**
+- Toalha molhada na cama #toalhanacama
 - Não fez café da manhã
 - Não colocou as louças na máquina
 - Roncou demais
