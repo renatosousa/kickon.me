@@ -22,9 +22,9 @@ Em vez de brigar vamos ver se vocês tem os mesmos problemas que o resto do mund
 
 # Os casais estão elogiando:
 
-- Me chupou enquanto assistia um breaking bad
+- Me #$!#@$ enquanto assistia um breaking bad
 - Me trouxe cerveja enquanto assistia o jogo
-- Fez uns tiragostos após o boquete
+- Fez uns tiragostos após o !@$#@!
 - Lavou meu carro
 
 ```
